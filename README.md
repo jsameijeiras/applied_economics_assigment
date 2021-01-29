@@ -1,1 +1,0 @@
-# applied_ecomics_assigment
